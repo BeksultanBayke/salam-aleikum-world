@@ -1,3 +1,3 @@
 # salam-aleikum-world
-ratatata
+Do not use shitty words
 
