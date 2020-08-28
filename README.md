@@ -1,2 +1,3 @@
 # salam-aleikum-world
-Kotokbash bayke
+Do not use shitty words
+
